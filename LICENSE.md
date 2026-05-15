@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with rare pancakeswap trading bot Tool | slippage-control + blockchain-scanning, the #1 pancakeswap trading bot. Includes slippage-control and
 
 
 
